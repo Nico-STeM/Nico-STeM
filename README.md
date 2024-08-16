@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Nico-STeM, aka. ScrapTrapMaker and this is my school account.
+- 👀 I’m interested in game development.
+- 🌱 I’m currently learning Cpeepee.
+- 💞️ I’m looking to collaborate on nothing for now.
+- 📫 There's no way to reach me... 
+- 😄 Pronouns: he/him, stoo/pid.
+- ⚡ Fun fact: I love cats.
